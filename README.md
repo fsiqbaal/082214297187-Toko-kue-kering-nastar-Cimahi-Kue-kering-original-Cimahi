@@ -12,4 +12,6 @@ Hubungi Kontak di bawah ini:
 
 https://paketkuekeringlebarancimahi.blogspot.com/
 
+https://share.evernote.com/note/fe9978e1-e868-1908-68a4-30652ef92cd3
+
 https://paketkuekeringlebarancimahi.blogspot.com/2024/12/082214297187oleh-oleh-kue-kering-cimahi.html
